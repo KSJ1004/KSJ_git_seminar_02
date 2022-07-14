@@ -1,0 +1,1 @@
+# KSJ_git_seminar_02
